@@ -74,4 +74,4 @@ Curieuse et motivée, je souhaite mettre en avant mes compétences afin de contr
 - Lecture & romans  
 - Photographie  
 - Bénévolat au sein d’un groupe de Solidarité Locale  
-# portfolio
+
