@@ -6,10 +6,9 @@ Curieuse et motivée, je souhaite mettre en avant mes compétences afin de contr
 
 ---
 
-## 📞 Contact  
-- 📍 14, rue du Dr Schweitzer – 33300 Bordeaux  
+## 📞 Contact    
 - 📧 fanta.kouyate635@gmail.com  
-- 📱 06 01 45 49 12  
+ 
 
 ---
 
